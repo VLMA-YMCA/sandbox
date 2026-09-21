@@ -8,7 +8,7 @@ Staggering clarity
 Dubious foresight
 
 # v4
-Far cry from eagle nest
+far cry from eagle nest
 
 # v5
-Close call from above
+scream in sand
